@@ -5,8 +5,7 @@
 📺ㅤ..ㅤ✖ㅤ ㅤＨＡＩＬ ＶＯＸ ＰＯＰＵＬＩ ㅤ . `ㅤ♡
 
 <p align="center">
-<img width="1024" height="768" alt="image" src="https://github.com/user-attachments/assets/2995dca1-1a55-4a98-bd25-82f25c9361c5" />
-
-
+<img width="1024" height="768" alt="image" src=<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/a3c5cc05-1da4-4e07-9a02-7396c1f9268a" />
+ />
 
 
